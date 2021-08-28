@@ -1,0 +1,1 @@
+# zakladni-informace-k-fungovano-v-kancelari
