@@ -1,4 +1,4 @@
-# Základní informace k fungování v kanceláři
+# Fungování v kanceláři
 
 Fungování v kanceláři
 * Stůl si před odchodem uklidíme, ať se nám příště lépe přichází do uklizeného prostředí (hlavně špinavé nádobí, rozházené papíry a kabely pod stoly, atp.)
